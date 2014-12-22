@@ -32,7 +32,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-The groome-porters lawes at Mawe, to be obserued in fulfilling the due orders of the game1600Approx.
+The Groome-porters lawes
+at Mawe, to be obſerued in fulfilling the
+due orders of the Game.1. IF you 
 **Types of content**
 
 
